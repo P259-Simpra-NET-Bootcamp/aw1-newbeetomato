@@ -18,3 +18,4 @@
 </ol>
 
 Bu hafta bir kod odevi yok, kurulumlarin yapildigina dair ekran ciktisi koymaniz yeterli .
+![FsWCX0lX0AUj-9o](https://user-images.githubusercontent.com/76583557/236251098-183ff7a5-7c2e-4524-8933-dae424d1ace4.jpg)
